@@ -1,3 +1,0 @@
-kushank
-lakshay
-kashish
